@@ -1,2 +1,2 @@
-# Hi and hello my deares friend.
+# Hi and hello my dearest friend.
 ## Welcome to my profile ye
